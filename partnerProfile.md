@@ -1,16 +1,16 @@
-# Donovan Medero 
+# _Donovan Medero_
 
-## About
+## _About_
 
-### Hobbies & Interests
--
--
--
-
-### Favorite
+### _Hobbies & Interests_
 -
 -
 -
 
-### Fun Fact
+### _Favorite_
+-
+-
+-
+
+### _Fun Fact_
 
