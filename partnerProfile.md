@@ -1,16 +1,16 @@
-# _Chaohui He_
+# _Meet Chaohui_
 
-## _About Chaohui He_
+## _About Chaohui_
 
 ### _Hobbies & Interests_
--
--
--
+- Listening to music
+- Reading 
+- Hang out with friends 
 
 ### _Favorite_
--
--
--
+- Book: The Giver
+- Movie: The Amazing Spider-Man 
+- TV Show: Phineas and Ferb
 
 ### _Fun Fact_
-
+I once stayed awake for 24 hours.
