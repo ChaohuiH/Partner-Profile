@@ -4,7 +4,7 @@
 
 ### _Hobbies & Interests_
 - Listening to music
-- Reading 
+- Watching movies
 - Hang out with friends 
 
 ### _Favorite_
