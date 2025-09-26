@@ -5,7 +5,7 @@
 ### _Hobbies & Interests_
 - Listening to music
 - Watching movies
-- Hang out with friends 
+- Hangout with friends 
 
 ### _Favorite_
 - Book: The Giver
